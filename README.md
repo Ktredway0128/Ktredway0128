@@ -54,4 +54,4 @@ Currently available for freelance work. View my packages at [tredwaydev.com](htt
 - 🌐 [tredwaydev.com](https://tredwaydev.com)
 - 💼 [Fiverr](https://fiverr.com/kyletredwaydev)
 - 🐦 [Twitter](https://twitter.com/kyletredwaydev)
-- 📺 [YouTube](https://www.youtube.com/@kyletredwaydev)
+- 📺 [YouTube](https://www.youtube.com/channel/UCEUBo5G9WFSRJomFEJzLwag)
